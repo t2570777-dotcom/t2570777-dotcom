@@ -1,4 +1,5 @@
 👋Hi everyone,I am Tharani<br>📖I am currently studying 2nd year Artificial intelligence and data science in Stella Mary's College of engineering 
+I am using the chat gpt tool for my studies and my doubt 
 
 
 ## 🌐 Socials:
