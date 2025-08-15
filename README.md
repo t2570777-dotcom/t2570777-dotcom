@@ -1,4 +1,3 @@
-
 👋Hi everyone,I am Tharani<br>📖I am currently studying 2nd year Artificial intelligence and data science in Stella Mary's College of engineering 
 
 
